@@ -1,4 +1,4 @@
-# Grundsatzprogramm der Demokratischen Deutschen Volkspartei (DDV)
+# Grundsatzprogramm der Demokratischen Deutschen Volkspartei (DDVP)
 
 ## Strafgesetzbuch
 
